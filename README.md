@@ -1,6 +1,14 @@
-Hey, I'm @FallenRebels -- // They/them . 2D Digital Artist //
+Hey, I'm @FallenRebels!
+-
+// They/them . 2D Digital Artist //
 
 Learning how to make Tumblr Themes! 
+
+Find me Here!
+--
+https://fallenrebels.carrd.co/
+
+
 
 
 
